@@ -4,7 +4,7 @@ dgnmfgfgmfgmfmmfmmmgffffffffffffffffffffffffffffffffffffffffffffffffffffffffffff
 ## gascghivadhjxgahigicaacfasvigvsguivig  
 # nvdfgrfhrfrrhtrhrth
 # amnjvcvvvv
-![my_photo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fvk.com%2Fwall-221220639_80&psig=AOvVaw1-seHUL_GlD7g5iGvRDd2N&ust=1731239474522000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOCQlOGXz4kDFQAAAAAdAAAAABAI)
+![my_photo](https://lh6.googleusercontent.com/proxy/8XkqFvUsIxofgmUFk2PZdlSnh3UDeqKQl9aKhEXN9U7H6aaK-zYbWJifPcwSSnlYNzeeviSIvZWxY4xUrxI9oIwDeUH_xbtIFz611NKcbuIsxrgkYFZ3MYiekjvFCFD33aTRYG78ntbP2xD0U6crsu7mUkuvLJ7XO0Wp6SE-URKMOESPAirBOd2FjLD2zLoN_DFDVQkz0Bejy08ZIcUCXb3nBR__ud_PxcwwRPO27jBvrOQ)
 # **нгцкпцрушщрщцуркуцтукол**
 
 
